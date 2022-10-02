@@ -1,1 +1,0 @@
-# Diamond-temmy-profile
